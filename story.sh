@@ -7,3 +7,5 @@ painful hn!
 Well! How it is?
 
 jag ghoomeya tharey jaisa na koi.
+
+hud hud dabangg dabangg dabangg dabangg!!
